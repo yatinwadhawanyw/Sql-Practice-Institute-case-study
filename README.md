@@ -1,1 +1,0 @@
-# Sql-Practice-Institute-case-study
